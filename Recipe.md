@@ -13,6 +13,7 @@
   - Using an electric mixer or a stand mixer fitted with the whisk attachment, cream 1 cup sugar, 1 cup butter and 1 teaspoon vanilla extract on medium high speed until light and fluffy (3-5 minutes).
   - Add the completely cool flour mixture and continue beating until you get the consistency of whipped cream (3-5 minutes).
   - Fill, frost and decorate cake as desired.
+  
   ![Red Velvvet Cake](https://veenaazmanov.com/wp-content/uploads/2020/07/Ermine-Frosting-Progress-Pictures12-500x375.jpg)
   - After decoration
     
