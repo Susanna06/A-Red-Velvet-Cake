@@ -17,3 +17,4 @@
   - Granulated Sugar (1 cup) ![Granulated Sugar](https://s3.envato.com/files/250281561/165.jpg)
   - Unsalted Butter (1 cup) ![Unsalted Butter](https://media1.s-nbcnews.com/j/newscms/2016_26/1493206/160412-butter-mn-1515_cefdb8ba238ffe88a9e97e0e119a71c3.fit-760w.jpg)
   - Vanilla Extract (1 Tablespoon) ![Vanila Extract](https://cdn.shopify.com/s/files/1/2339/6447/products/kigelia_b439f655-657a-4626-bcb0-fd8b2fa0c0df_2048x.png?v=1527480224)
+  * To know how to make 👉👉 [Click Here](https://github.com/Susanna06/Red-Velvet-Cake/blob/master/Recipe.md)
