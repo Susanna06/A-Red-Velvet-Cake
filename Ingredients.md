@@ -1,4 +1,4 @@
-# Ingredients
+# Ingredients ![Ingredients](https://www.fodmapeveryday.com/wp-content/uploads/2017/07/red-velvet-cake-batter-copy.jpg)
   - Cake Flour (3 cups)
   - Salt (1/2 teaspoon) 
   - Unsweetened Natural Cocoa Powder (about 3 tablespoons)
