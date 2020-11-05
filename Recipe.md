@@ -6,7 +6,7 @@
   - With the mixer on low speed, add the dry ingredients in 2-3 additions alternating with the buttermilk. Beat in your desired amount of food coloring just until combined. I use 1-2 teaspoons gel food coloring. Vigorously whisk or beat the 4 egg whites on high speed until fluffy peaks form as pictured above, about 3 minutes. Gently fold into cake batter. The batter will be silky and slightly thick.
   - Bake for 30-32 minutes or until the tops of the cake spring back when gently touched and a toothpick inserted in the center comes out clean. If the cake need a little longer as determined by wet crumbs on the toothpick, bake for longer. However, careful not to overbake as the cake may dry out. 
   - Remove cake from the oven and cool completely in the pans set on a wire rack. The cake must be completely cool before frosting.
-  ![Red Velvet Cake](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcQTSOQVJXHUZGPdk6KGiwseO2_q-QRjbUhsxg&usqp=CAU)
+  ![Red Velvet Cake](https://encrypted-tbn0.gstatic.com/images?q=tbn%3AANd9GcS26CywcIRFOEJmUiyT95WPffJ75KRDqidhBQ&usqp=CAU)
 # Instruction for Ermine Frosting
   - In a medium sized sauce pan, combine 5 tablespoons flour and 1 cup milk and constantly stir over medium heat until very thick, like pudding (8-10 minutes).
   - Remove from heat, place plastic wrap on top and cool to room temperature. Then transfer it to the fridge and chill for 1 hour.
