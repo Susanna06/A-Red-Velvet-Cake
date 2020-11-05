@@ -14,7 +14,10 @@
   - Add the completely cool flour mixture and continue beating until you get the consistency of whipped cream (3-5 minutes).
   - Fill, frost and decorate cake as desired.
   
-    ![Red Velvvet Cake](https://www.seriouseats.com/2019/03/20190226-ermine-buttercream-frosting-vicky-wasik-14-1500x1125.jpg)
+    ![Red Velvvet Cake](https://www.baking-sense.com/wp-content/uploads/2020/03/ermine-frosting-8a-480x480.jpg)
+  - After applying the frost
+  
+    ![Red Velvet Cake](https://flockler.com/thumbs/sites/192/vanilla-cake-with-ermine-icing_s0x768_q60.jpg)
   - After decoration
     
     ![Red Velvet Cake](https://cdn.igp.com/f_auto,q_auto,t_prodl/products/p-classic-red-velvet-cake-half-kg--109230-m.jpg)
